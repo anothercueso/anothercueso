@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @anothercueso
+- 👀 I’m interested in fork diffrent programs
+- 🌱 I’m currently learning nothing
